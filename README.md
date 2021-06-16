@@ -1,2 +1,0 @@
-# LOOP
-clothes store
